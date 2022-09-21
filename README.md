@@ -21,7 +21,11 @@ Also the source of the conflict is resulting from the provocations of the anglo-
 
 Only at the end of the 4 years period, if the problem persist, a referendum could decide of the membership of those 3 regions. 
 This time, for a durable peace, we hope the rights of the Crimean Tatar will be taken into account without conflicting with the 
-main Russian or Ukrainian authority.   
+main Russian or Ukrainian authority. 
+
+Also by giving a limited period we really solve the conflict definitively instead of creating a never ending false solution like the 
+green line in Cyprus where the West recognizes the south but ignores the north of Cyprus, the hypocrisy of the West is one more time
+perfectly illustrated.
 
 With an honorable exit from the conflict, this simple recipe will make a durable peace between Russians and Ukrainians, including the long 
 time deported Crimean Tatar population. With the peace established and the peaceful participation of all parties to the reconstruction of a
@@ -30,6 +34,8 @@ new prosper economy, the membership of those 3 regions to Russia or to the Ukrai
 During this garantor controlled period and beyond, both Russia, Ukraine and neighbor countries will have the opportunity to reconstruct 
 all cities and villages to a level of architecture never seen before, the world will witness the finest and highest civilisation ever 
 reached by the mankind.
+
+It's time to help worldwide, wide, wild, wise and bold, the Peace.
 
 ## Türkish version posted as a comment on a Youtube video.
 
