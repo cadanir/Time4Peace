@@ -36,6 +36,7 @@ reached by the mankind.
 Artık bu savaşın durması gerekiyor. Kırım, Donetsk ve Donbas, 5 yıl süreyle, 4 ülkenin garantörlüğünde, silahsız barış gücü denetiminde kalsın. Garantör ülkeler, Ukrayna ve onun belirlediği başka bir ülke, Rusya ve Rusya'nın belirlediği başka bir ülkeden oluşsun. Bölgenin önemli konularda, Ukrayna ve Rusya'nın %40 oy hakkı olsun, diğer 2 ülkenin %10 oy hakkı olsun. Süre sonunda, yani en fazla 5 yıl sonra veya daha erken bu özel durum doğal olarak kalkar. Barış büyük olasılık çünkü 2 devlet birbirine her açıdan çok yakın, düşmanlık Batı kışkırtmasından kaynaklı. Doğal barış olmazsa, ancak 5 yıl sure sonunda referandum tarafları belirlesin. Elbette, bu sefer kapsayıcı ve kalıcı bir barış için, Kırım Tatarların hakları dikkate alınsın. Böylece barış bütün taraflara kalıcı ve onurlu bir sonuç kazandırır, düşmanlık silinir. Bu reçeteyi umuyorum, hem Rusya hem Ukrayna yapıcı bulur ve kabul eder.
 
 Cengiz ADANIR
+
 cadanir[at]gmail.com
 
 
